@@ -13,7 +13,7 @@ Links to some of the stories mentioned:
 
 - [**Bias behind bars: A Globe investigation finds a prison system stacked against Black and Indigenous inmates**, from The Globe and Mail](https://www.theglobeandmail.com/canada/article-investigation-racial-bias-in-canadian-prison-risk-assessments/)
 - [**One Trump Tax Cut Was Meant to Help the Poor. A Billionaire Ended Up Winning Big**, from ProPublica](https://www.propublica.org/article/trump-inc-podcast-one-trump-tax-cut-meant-to-help-the-poor-a-billionaire-ended-up-winning-big)
-- [**The Power Gap: Women are outnumbered and outranked at Canada’s vital public institutions**](https://www.theglobeandmail.com/canada/article-power-gap-main/)
+- [**The Power Gap: Women are outnumbered and outranked at Canada’s vital public institutions**, from The Globe and Mail](https://www.theglobeandmail.com/canada/article-power-gap-main/)
 - [**Long-concealed records show Trump's chronic losses and years of tax avoidance**, from The New York Times](https://www.nytimes.com/interactive/2020/09/27/us/donald-trump-taxes.html)
 - [**The Pandora Papers**, from the International Consortium of Investigative Journalists](https://www.icij.org/investigations/pandora-papers/)
 - [**The Really Big One**, from The New Yorker](https://www.newyorker.com/magazine/2015/07/20/the-really-big-one)
